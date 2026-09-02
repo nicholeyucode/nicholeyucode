@@ -2,6 +2,6 @@
 
 the code from my strudel covers is in the 'strudel' repo (pinned below)
 
-lmk if you have questions or notice any typos (via instagram comments and i'll try to respond)
+lmk if you have questions or notice any typos (via instagram comments)
 
 🌱
